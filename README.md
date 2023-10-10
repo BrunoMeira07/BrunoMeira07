@@ -12,7 +12,8 @@ bruno.felipe.meira@escola.pr.gov.br
 
 @bruno_meira
 
-
+![](https://media.tenor.com/y3KFJlGXktwAAAAi/the-simpsons-bart-simpson.gif
+)
 
 
 
